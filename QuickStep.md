@@ -9,3 +9,12 @@
 - Run on the front part of the foot. The heel should not touch the floor.
 - Try to be as silent as possible.
 - Outside steps in the run are bigger because you have more space.
+
+# Rolly-Polly // Running Right Turn
+
+- Sharper on the Quicks
+- Head moves to Left to Neutral to Left again.
+- Use a **pull movement when going back** (Slow LF in CBMP)
+- Don't go lower, go longer, like pulling and turning.
+- Keep the butt in and the Head high
+- Keep the spine straight
