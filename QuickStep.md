@@ -18,3 +18,9 @@
 - Don't go lower, go longer, like pulling and turning.
 - Keep the butt in and the Head high
 - Keep the spine straight
+
+# start
+
+1. From start position, side step to the left on beats 1 2.
+2. Side step to the right 1 2.
+3. Step Left Foot forward on 1 to get into... spin turn ?

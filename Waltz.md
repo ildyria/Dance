@@ -31,3 +31,9 @@ Start in position, step to the side and close with a balancing movement.
 Keep elbows up. Keep the feet parallel and the knees above them.
 Close the legs faster and rise the foot up.  
 Do not rise to the extend of the leg. Keep the knee bend.
+
+# Start
+
+1. From start position, side step to the left (LF first) on beats 1 2 3.
+2. Side step to the right on beats 1 2.
+3. Step Left Foot forward on beat 3 to get into... natural turn ?
