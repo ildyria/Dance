@@ -3,7 +3,7 @@
 1. Feet closed. Straight.
 2. Lean slightly forward to shit the weight on the front part of your feet.
 3. Bend you knees slightly so they are above the boll of your feet.
-4. Push the pelvis forward and the tail bone to the floor.
+4. Push the pelvis forward and the tail bone to the floor (rotation/pivot).
 5. Contract the core toward the **INSIDE**  
    Core is not just the upper part bellow the plexus but also the part above the pelvis.  
    Contracting it give the same feeling of doing crunches.  
@@ -37,12 +37,26 @@
 
 Do not forget to give place to partner especially with the right arm.
 
+In the end, the back should be flat. Shoulder blades should not point out.
+Do not bring the arms back, it uses unnecessary forces.
+
+The core should be contracted but the upper part (chest) should be relaxed (but still holding and provide tension).
+
+**Bonus point:** Give expression!
+
+## Head position
+
+It is **not** *"look, there is a bird"*.  
+Look 45 degrees (about 10:30 o' clock)
+Head should be held high.
+
+
 ## Feeling
 
 1. Lie down on the floor.
 2. Knees slightly bent.
 3. Engage the core.  
-    See above.
+    Crunch feeling as seen above.
 4. **Spine should be straight and always touch the floor**.
 5. Extend horizontally.
 6. Feel the the straight & flat feeling.
