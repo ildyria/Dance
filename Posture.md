@@ -2,7 +2,7 @@
 
 1. Feet closed. Straight.
 2. Lean slightly forward to shit the weight on the front part of your feet.
-3. Bend you knees slightly so they are above the bol of your feet.
+3. Bend you knees slightly so they are above the boll of your feet.
 4. Push the pelvis forward and the tail bone to the floor.
 5. Contract the core toward the **INSIDE**  
    Core is not just the upper part bellow the plexus but also the part above the pelvis.  
@@ -34,6 +34,8 @@
     - Go lower and make connection at the knees and under the rib cage.
     - Chest has to stay in place and not twist, idem for the hips.
     - **CHECK if hips are correctly placed: straight/slightly inward partner**
+
+Do not forget to give place to partner especially with the right arm.
 
 ## Feeling
 

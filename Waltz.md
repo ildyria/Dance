@@ -13,9 +13,19 @@ Use knees and ankles.
 # Rise and Fall Feeling
 
 Feel that the core is moving rather than the legs.  
-Core should not stop moving, **like a ball balancing**.
+Core should not stop moving, **like a ball moving and rolling and swinging**.
+The feeling is more important than the timing.
+If you follow too much the timing you will look like a robot and your dance will look like hashed.
 
-# Exercice.
+# General remarks
+
+- Think about when you can place a CBM.
+- If you don't go lower to prepare your step, this implies that you might go for a chasse.
+- Do not lose connection at the hips.
+- Lead with the hips rather than with the arms.
+- In the chasse, don't bring the partner closer to you, __let her have space__.
+
+# Exercise
 
 Start in position, step to the side and close with a balancing movement.  
 Keep elbows up. Keep the feet parallel and the knees above them.

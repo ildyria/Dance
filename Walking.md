@@ -20,4 +20,20 @@
 2. Place your weight on your heel (back foot) while lifting the toes on the other foot and placing the heel.
 3. Place weight on front side of the foot before reaching and stepping.
 
-In all steps, when going down, think about going up.
+# General remarks
+
+In all steps, when going down, think about going up.  
+When going backward, before stepping on the toes. Legs should be close to extension while the upper part of the chest should be up.
+Ideas is to look tall.
+
+## with CBM
+
+1. Start from initial position, legs closed.
+2. Go forward (with core) and down. Do not close the legs. it is a single step.
+  At the same time of going down, move to CBM:
+  - if left leg is forward turn the chest to the left.
+  - if right leg is forward, turn chest to the right.
+  It is extremely important to turn at the same time of going down other wise it is reinforcing a robotic movement.
+3. Stand up again.
+
+This exercise can also be done when going backward.
