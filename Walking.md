@@ -19,3 +19,5 @@
 1. While going down, the foot glide on the floor on the toes.
 2. Place your weight on your heel (back foot) while lifting the toes on the other foot and placing the heel.
 3. Place weight on front side of the foot before reaching and stepping.
+
+In all steps, when going down, think about going up.

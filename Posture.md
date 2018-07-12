@@ -4,8 +4,11 @@
 2. Lean slightly forward to shit the weight on the front part of your feet.
 3. Bend you knees slightly so they are above the bol of your feet.
 4. Push the pelvis forward and the tail bone to the floor.
-5. Contract the core toward the **INSIDE**
-6. Lower part of the Rib cage should be down
+5. Contract the core toward the **INSIDE**  
+   Core is not just the upper part bellow the plexus but also the part above the pelvis.  
+   Contracting it give the same feeling of doing crunches.  
+6. Lower part of the Rib cage should be down  
+   Feel connection between the hips and the bottom of the Rib cage
 7. Upper part of the Rib cage should be up
 8. Extend the neck toward the top, head slightly turned to the left.
 9. **Spine has to be Straight**. A vertical line should pass through:
@@ -36,7 +39,8 @@
 
 1. Lie down on the floor.
 2. Knees slightly bent.
-3. Engage the core.
+3. Engage the core.  
+    See above.
 4. **Spine should be straight and always touch the floor**.
 5. Extend horizontally.
 6. Feel the the straight & flat feeling.
