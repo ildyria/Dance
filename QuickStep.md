@@ -24,3 +24,12 @@
 1. From start position, side step to the left on beats 1 2.
 2. Side step to the right 1 2.
 3. Step Left Foot forward on 1 to get into... spin turn ?
+
+# SpinTurn
+
+When going back, also CBM !
+Do not lead with arms.
+
+# Pivots
+
+Use CBMs

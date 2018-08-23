@@ -21,7 +21,7 @@
 10. Relax the shoulders and arms.
 11. Bring arms to *Second position*
 12. Extend to the elbows and arms to the side.
-13. Open arms and position
+13. Open arms and position.
 14. **Keep the upper back flat**
 
 15. Invite partner to take position:
@@ -34,6 +34,7 @@
     - Go lower and make connection at the knees and under the rib cage.
     - Chest has to stay in place and not twist, idem for the hips.
     - **CHECK if hips are correctly placed: straight/slightly inward partner**
+16. Place left front arm at a 45 degree angle. (unless Tango?)
 
 Do not forget to give place to partner especially with the right arm.
 

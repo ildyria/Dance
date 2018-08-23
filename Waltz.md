@@ -24,6 +24,7 @@ If you follow too much the timing you will look like a robot and your dance will
 - Do not lose connection at the hips.
 - Lead with the hips rather than with the arms.
 - In the chasse, don't bring the partner closer to you, __let her have space__.
+- After the wisk, step on the **heel**!
 
 # Exercise
 
@@ -32,8 +33,26 @@ Keep elbows up. Keep the feet parallel and the knees above them.
 Close the legs faster and rise the foot up.  
 Do not rise to the extend of the leg. Keep the knee bend.
 
+Think about trampoline effect. Place the heel softly on the floor.
+
 # Start
 
 1. From start position, side step to the left (LF first) on beats 1 2 3.
 2. Side step to the right on beats 1 2.
 3. Step Left Foot forward on beat 3 to get into... natural turn ?
+
+# Wisk
+
+Core movement should form an inverted C, the trampoline effect is present.
+Pay attention to the direction of the left foot when going forward, it is going straight.
+Rotation to the left when stepping forward (CBM).
+
+# General remarks
+
+Continue movements with the second leg. You don't move the first leg and then do nothing (stand still). Your second leg should be felt through the movement.
+
+When standing continue the movement with the nose.
+
+Increase the lowering.
+
+After a Chasse in line of dance, CBM diagonal to wall.
