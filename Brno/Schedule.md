@@ -1,9 +1,9 @@
 # Tuesday
 
-12:30 - 14:00 - Lunch
+*12:30 - 14:00 - Lunch
 14:00 - 14:45 - Lesson with Iva
 14:45 - 15:30
-15:30 - 16:15
+15:30 - 16:15*
 16:15 - 17:45 - Group Lesson
 17:45 - 18:30 - Dinner
 18:30 - 19:15 - Lesson with Oleg
