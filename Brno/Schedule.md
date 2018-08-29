@@ -15,9 +15,9 @@
 
  7:30 -  8:30 - Breakfast
  8:30 -  9:15 - Warm up
- 9:30 - 10:15*
+ 9:30 - 10:15
 10:15 - 11:00 - Lesson with Michal
-11:00 - 11:45
+11:00 - 11:45*
 11:45 - 12:45 - Group Lesson
 12:45 - 13:45 - Lunch
 13:45 - 14:30 - Lesson with Klarka

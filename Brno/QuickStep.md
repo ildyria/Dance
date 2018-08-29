@@ -31,11 +31,15 @@ Go slightly under during & and go over during 2 3.
 Knee should always be bent => try to stay low all the time.
 **The rise will come from the ankle.**
 
-# Running right turn
+# Running right turns
 
-Start in promenade.
-SQQ (end is open)
-S Q(closed, right leg in the middle between partner's legs) Q(open)
+Start in promenade (cf next section).
+RF S (step)
+LF Q (closed)
+RF Q (open, stepping slightly back)
+LF S
+RF Q (closed, leg in the middle between partner's legs)
+LF Q (open)
 Pay attention to rise and fall.
 
 # Promenade
@@ -43,3 +47,8 @@ Pay attention to rise and fall.
 Before the promenade, contract the right side (*"Technical Sway"*).
 Keep the arms horizontal, do not bent forward (left).
 At the same time present the left side of the chest (flag/sponsor...)
+
+# Head and movement
+
+head should be in the back, jaw horizontally, this helps to put the weight on the back.
+Imagine reaching forward/kicking before stepping.
