@@ -3,7 +3,7 @@
 *12:30 - 14:00 - Lunch
 14:00 - 14:45 - Lesson with Iva
 14:45 - 15:30
-15:30 - 16:15*
+15:30 - 16:15
 16:15 - 17:45 - Group Lesson
 17:45 - 18:30 - Dinner
 18:30 - 19:15 - Lesson with Oleg
@@ -15,7 +15,7 @@
 
  7:30 -  8:30 - Breakfast
  8:30 -  9:15 - Warm up
- 9:30 - 10:15
+ 9:30 - 10:15*
 10:15 - 11:00 - Lesson with Michal
 11:00 - 11:45
 11:45 - 12:45 - Group Lesson
