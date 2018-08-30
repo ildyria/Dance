@@ -9,15 +9,15 @@
 18:30 - 19:15 - Lesson with Oleg
 19:15 - 20:00
 20:00 - 21:30 - Competition Practice
-21:30 - 22:00 - Stretching
+21:30 - 22:00 - Stretching*
 
 # Wednesday
 
- 7:30 -  8:30 - Breakfast
+*7:30 -  8:30 - Breakfast
  8:30 -  9:15 - Warm up
  9:30 - 10:15
 10:15 - 11:00 - Lesson with Michal
-11:00 - 11:45*
+11:00 - 11:45
 11:45 - 12:45 - Group Lesson
 12:45 - 13:45 - Lunch
 13:45 - 14:30 - Lesson with Klarka
@@ -27,17 +27,17 @@
 17:30 - 18:15
 18:15 - 18:45 - Dinner
 18:45 - 19:30
-19:30 - 20:15 - Lesson with Oleg
+19:30 - 20:15 - Lesson with Oleg (WW)
 20:15 - 21:30 - Competition Practice
-21:30 - 22:00 - Stretching
+21:30 - 22:00 - Stretching*
 
 # Thursday
 
- 7:30 -  8:30 - Breakfast
+*7:30 -  8:30 - Breakfast
  8:30 -  9:15 - Warm up
- 9:30 - 10:15
+ 9:30 - 10:15*
 10:15 - 11:00 - Lesson with Iva
-11:00 - 11:45 - Lesson with Michal
+11:00 - 11:45 - Lesson with Michal (Tango)
 11:45 - 12:45 - Group Lesson
 12:45 - 13:45 - Lunch
 13:45 - 14:30

@@ -1,9 +1,13 @@
+# General
+
+Left arm should be (usually) higher than the right arm.
+**Think about presenting the flag.**
+**DO NOT RISE OR FALL** it will occur naturally with the ankles.
+
 # Start posture
 
 Pay attention to the angle of the right hip : slightly more forward.
 Chest is facing the direction you want to take, not tilted to the left.
-
-# Start position
 
 Preparation step, when stepping on left, add slight rotation to the left.
 (before going one way, you have to go the other way)
@@ -22,7 +26,7 @@ Rhythm in our case is QQSS (1&2 3).
 Stay low.
 
 **Do not turn during the lock**, turn after the lock!
-Rise and fall is High Low High Low (High on left leg).
+Rise and fall is *High Low High Low* (High on left leg).
 
 Go slightly under during & and go over during 2 3.
 
@@ -37,9 +41,9 @@ Start in promenade (cf next section).
 RF S (step)
 LF Q (closed)
 RF Q (open, stepping slightly back)
-LF S
-RF Q (closed, leg in the middle between partner's legs)
-LF Q (open)
+LF S (**add rotation to the right to let partner pass**)
+RF Q (closed, leg in the middle between partner's legs/going forward)
+LF Q (open, to the right side of the partner)
 Pay attention to rise and fall.
 
 # Promenade
