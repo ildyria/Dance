@@ -19,3 +19,7 @@ RF Step forward (feet inside but knee outside)... and pivot !
 # Spin turn
 
 **sway to the LEFT, even during the turn**
+
+# Head position
+
+**Look forward but hear behind.**

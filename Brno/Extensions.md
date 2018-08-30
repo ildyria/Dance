@@ -26,3 +26,21 @@ As if someone was pulling from the hair.
 
 Focus on one of two (either going up or going down).
 However do not stay only up (e.g. in extension) as this makes the dance stiff.
+
+# Opposite
+
+### Waltz
+
+When going down, shoulder goes even lower.
+When going up, heads extends even more.
+On 2, slightly relax the shoulders.
+
+It is the same movement as breathing with the shoulders (but very light).
+Inhale on 2. Exhale on 3 and 1.
+
+**To apply to other dances**
+
+### Tango
+
+In tango we don't have a swing, thus this movement is applied during Slow.
+on Slow you *load* and on Quick you lower the shoulders.
