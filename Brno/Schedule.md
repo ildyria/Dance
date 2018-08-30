@@ -44,10 +44,10 @@
 14:30 - 15:15  
 15:15 - 16:00  
 16:00 - 17:00 - Group Lesson  
-17:30 - 18:15*  
+17:30 - 18:15  
 18:15 - 18:45 - Dinner  
-18:45 - 19:30 - Lesson with Iva (??)  
-19:30 - 20:15  
+18:45 - 19:30 - Lesson with Iva (QS)  
+19:30 - 20:15*  
 20:15 - 21:30 - Competition Practice  
 21:30 - 22:00 - Stretching  
 
