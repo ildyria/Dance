@@ -14,8 +14,6 @@ Imagine the spine of your partner: do not go through it. Go around it.
 However do not go around your partner.
 
 
-
-
 # Leading
 
 - It is done with the core.

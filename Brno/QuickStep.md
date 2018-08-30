@@ -41,7 +41,7 @@ Start in promenade (cf next section).
 RF S (step)
 LF Q (closed)
 RF Q (open, stepping slightly back)
-LF S (**add rotation to the right to let partner pass**)
+LF S (**add right rotation to let partner pass**)
 RF Q (closed, leg in the middle between partner's legs/going forward)
 LF Q (open, to the right side of the partner)
 Pay attention to rise and fall.
@@ -56,3 +56,5 @@ At the same time present the left side of the chest (flag/sponsor...)
 
 head should be in the back, jaw horizontally, this helps to put the weight on the back.
 Imagine reaching forward/kicking before stepping.
+
+# Sway
