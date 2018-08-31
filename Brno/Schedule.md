@@ -47,20 +47,20 @@
 17:30 - 18:15  
 18:15 - 18:45 - Dinner  
 18:45 - 19:30 - Lesson with Iva (QS)  
-19:30 - 20:15*  
+19:30 - 20:15  
 20:15 - 21:30 - Competition Practice  
-21:30 - 22:00 - Stretching  
+21:30 - 22:00 - Stretching*  
 
 # Friday  
 
- 7:30 -  8:30 - Breakfast  
+*7:30 -  8:30 - Breakfast  
  8:30 -  9:15 - Warm up  
- 9:30 - 10:15 - Lesson with Oleg (SF)  
+ 9:30 - 10:15 - Lesson with Oleg (SF)*  
 10:15 - 11:00  
 11:00 - 11:45  
 11:45 - 12:45 - Group Lesson  
 12:45 - 14:00 - Lunch  
-14:00 - 14:45 - Lesson with Michal ()  
+14:00 - 14:45 - Lesson with Michal (TBD)  
 14:45 - 16:15 - Group Lesson  
 16:15 - 17:00  
 17:00 - 17:45  

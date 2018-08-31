@@ -66,3 +66,37 @@ When turning left, rotation is usually and the *&* after the 1 (after a pendulum
 
 
 Use a "soft knee" (i.e. going very slightly down before rising, a bit like a bus arriving at a stop) on 1.
+
+# Routine
+
+### Whisk.
+
+### On the lunge:
+
+1. RF Step forward Dgn to W, Chest is Dgn to W. Head to the left.
+2. Rotate upper part to right.
+3. Extend to the right (Head tilted to the right)
+
+### Back:
+
+1. Step back on LF. Head to the left. Rotation to the right.  
+2. Climb 80% on LF and place right foot behind left foot.  
+3. Go down on right heel. Twist lower part to the left and extend Left foot (prepare for chasse).
+
+### Chasse:
+
+1. Step LF (heel).
+2. Step Right foot (toe), head to the left. Rotate & Push the lady from the LEFT hand (not from the core).
+*&* Close.
+3. While still going up, extend left foot far backward and step on toes.
+
+### Running Finish.
+
+### Natural Turn.
+
+### Spin Turn.
+
+### Promenade
+
+When stepping forward, step on toes but place heel quickly to go forward.  
+Do not lean/drop forward when going out of promenade.  
