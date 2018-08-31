@@ -13,9 +13,9 @@ Use knees and ankles.
 # Rise and Fall Feeling
 
 Feel that the core is moving rather than the legs.  
-Core should not stop moving, **like a ball moving and rolling and swinging**.
-The feeling is more important than the timing.
-If you follow too much the timing you will look like a robot and your dance will look like hashed.
+Core should not stop moving, **like a ball moving and rolling and swinging**.  
+The feeling is more important than the timing.  
+If you follow too much the timing you will look like a robot and your dance will look like hashed.  
 
 # General remarks
 
@@ -29,9 +29,9 @@ If you follow too much the timing you will look like a robot and your dance will
 # Exercise
 
 Start in position, step to the side and close with a balancing movement.  
-Keep elbows up. Keep the feet parallel and the knees above them.
+Keep elbows up. Keep the feet parallel and the knees above them.  
 Close the legs faster and rise the foot up.  
-Do not rise to the extend of the leg. Keep the knee bend.
+Do not rise to the extend of the leg. Keep the knee bend.  
 
 Think about trampoline effect. Place the heel softly on the floor.
 
@@ -41,18 +41,18 @@ Think about trampoline effect. Place the heel softly on the floor.
 2. Side step to the right on beats 1 2.
 3. Step Left Foot forward on beat 3 to get into... natural turn ?
 
-# Wisk
+# Whisk
 
-Core movement should form an inverted C, the trampoline effect is present.
-Pay attention to the direction of the left foot when going forward, it is going straight.
-Rotation to the left when stepping forward (CBM).
+Core movement should form an inverted C, the trampoline effect is present.  
+Pay attention to the direction of the left foot when going forward, it is going straight.  
+Rotation to the left when stepping forward (CBM).  
 
 # General remarks
 
-Continue movements with the second leg. You don't move the first leg and then do nothing (stand still). Your second leg should be felt through the movement.
+Continue movements with the second leg. You don't move the first leg and then do nothing (stand still). Your second leg should be felt through the movement.  
 
-When standing continue the movement with the nose.
+When standing continue the movement with the nose.  
 
-Increase the lowering.
+Increase the lowering.  
 
 After a Chasse in line of dance, CBM diagonal to wall.

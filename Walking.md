@@ -23,7 +23,7 @@
 # General remarks
 
 In all steps, when going down, think about going up.  
-When going backward, before stepping on the toes. Legs should be close to extension while the upper part of the chest should be up.
+When going backward, before stepping on the toes. Legs should be close to extension while the upper part of the chest should be up.  
 Ideas is to look tall.
 
 ## with CBM

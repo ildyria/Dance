@@ -27,7 +27,7 @@
 
 # SpinTurn
 
-When going back, also CBM !
+When going back, also CBM !  
 Do not lead with arms.
 
 # Pivots

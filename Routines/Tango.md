@@ -11,7 +11,9 @@
 10. Step (1-2)
 11. Close-point (3-4)
 12. back Whisk (5)
-13. swiffle (6-7)
-14. point (8)
-15. STEP (1)
-...
+13. swiffle (6)
+14. point (7) (kick 7&)
+15. STEP forward (1)
+16. Lock step (QQ)
+17. Four steps (QQQQ)
+18. Promenade (S)

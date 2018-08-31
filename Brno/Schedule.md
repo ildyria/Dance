@@ -55,7 +55,7 @@
 
 *7:30 -  8:30 - Breakfast  
  8:30 -  9:15 - Warm up  
- 9:30 - 10:15 - Lesson with Oleg (SF)*  
+ 9:30 - 10:15 - Lesson with Oleg (SF)  
 10:15 - 11:00  
 11:00 - 11:45  
 11:45 - 12:45 - Group Lesson  
@@ -64,4 +64,4 @@
 14:45 - 16:15 - Group Lesson  
 16:15 - 17:00  
 17:00 - 17:45  
-17:45 - 18:30 - Dinner  
+17:45 - 18:30 - Dinner*  
