@@ -1,5 +1,5 @@
 ## Mise en place  
-  
+
 1. Feet closed. Straight.  
 2. Lean slightly forward to shit the weight on the front part of your feet.  
 3. Bend you knees slightly so they are above the boll of your feet.  
@@ -23,7 +23,7 @@
 12. Extend to the elbows and arms to the side.  
 13. Open arms and position.  
 14. **Keep the upper back flat**  
-  
+
 15. Invite partner to take position:  
     - **Look at her, acknowledge**.  
     - Bring Left hand slightly forward to invite.  
@@ -35,25 +35,25 @@
     - Chest has to stay in place and not twist, idem for the hips.  
     - **CHECK if hips are correctly placed: straight/slightly inward partner**  
 16. Place left front arm at a 45 degree angle. (unless Tango?)  
-  
+
 Do not forget to give place to partner especially with the right arm.  
-  
+
 In the end, the back should be flat. Shoulder blades should not point out.  
 Do not bring the arms back, it uses unnecessary forces.  
-  
+
 The core should be contracted but the upper part (chest) should be relaxed (but still holding and provide tension).  
-  
+
 **Bonus point:** Give expression!  
-  
+
 ## Head position  
-  
+
 It is **not** *"look, there is a bird"*.    
 Look 45 degrees (about 10:30 o' clock)  
-Head should be held high.  
-  
-  
+Head should be held high and as if pushing a headrest in a car.  
+Slightly tilted to the left, as an extension.
+
 ## Feeling  
-  
+
 1. Lie down on the floor.  
 2. Knees slightly bent.  
 3. Engage the core.    

@@ -26,3 +26,15 @@
 10. chasse 1.2 and 3
 11. quick open reverse 1 and 2 3.
 12. ??
+
+
+###
+
+1. Natural Turn
+2. Spin Turn
+3. Reverse Turn
+4. Chasse to the right
+5. Outside change to PP
+6. Wing
+7. Telemark to PP
+8. Chasse
