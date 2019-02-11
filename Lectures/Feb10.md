@@ -39,6 +39,14 @@ Counting is twice quicker.
 Pay attention with the arms. If you extend the left arm too much to the front,
 you are forcing the lady out of position.
 
+### Tumble turn
+
+- 1. low
+- 2. low
+- 3. high
+- 3& high
+- 4. Ribcage is still high. **DO NOT GO DOWN.**
+
 ### Moving
 
 When moving you must get the feeling you are on a hoverboard. You glide on the floor.
