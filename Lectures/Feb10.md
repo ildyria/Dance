@@ -19,11 +19,11 @@ The one on the bottom right always tries to go with the lady.
 Everything over the ribcage is fixed and should move as a block.
 The arms are working together with the upper body.
 
-**Keep the head up.**
+Stay straight and **keep the head up.**
 
 ### Preparation step
 
-When stepping to the left, still give the right side to the lady.   
+When stepping to the left, still give the right side to the lady. Idem when going to the right.   
 <- 1234  
 -> 567  
 <- 8  
