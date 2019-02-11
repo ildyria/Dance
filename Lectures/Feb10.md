@@ -41,11 +41,11 @@ you are forcing the lady out of position.
 
 ### Tumble turn
 
-- 1 - low
-- 2 - low
-- 3 - high
-- 3& - high
-- 4 - Ribcage is still high. **DO NOT GO DOWN.**
+- 1 - low, step back LF
+- 2 - low, step back RF
+- 3 - high, step forward LF
+- 3& - high, step forward between the legs RF
+- 4 - pivot. **Ribcage is still high, DO NOT GO DOWN.**
 
 ### Moving
 
