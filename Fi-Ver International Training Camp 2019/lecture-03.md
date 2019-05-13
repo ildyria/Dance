@@ -17,11 +17,11 @@ Same as Exercice 1 but this time in Frame but not with a closed hold.
 
 In addition to the connection from upper thigh to lower rib cage, hands provide 2 additional connection.
 
-Left hand should be close and there should not be space between them.
-The finger should be felt but not more pressure than needed to.
-Don't put pressure between thumb and index, **it is not squeezing**.
+Left hand should be close and there should not be space between them.  
+The finger should be felt but not more pressure than needed to.  
+Don't put pressure between thumb and index, **it is not squeezing**.  
 
-The right hand should have 3 connections points: the wrist, the palm and the fingers.
+The right hand should have 3 connections points: the wrist, the palm and the fingers.  
 The wrist should be placed in the arm pit, the rest follow.
 
 ## Exercice 3

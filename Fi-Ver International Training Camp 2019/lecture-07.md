@@ -13,9 +13,9 @@ There are 4 types of Actions:
 
 ### Rotation
 
-When rotating to the right you can go as far as you want.
-When rotating to the left, you can't go further than your left toe.
-Don't forget to also rotate with the hip or the lady cannot follow.
+- When rotating to the right you can go as far as you want.
+- When rotating to the left, you can't go further than your left toe.
+- Don't forget to also rotate with the hip or the lady cannot follow.
 
 ### Sway
 
@@ -35,6 +35,6 @@ Make sure you keep connection wrist-arm pit otherwise it is heavy for the lady.
 
 ## Timing
 
-In a natural turn, the first one is the rotation, the comes sway and displacement then comes extension.
-In a reverse turn, it is the same but the displacement is not here.
-It is not rotation then sway etc, but they need to blend to each other.
+- In a natural turn, the first one is the rotation, the comes sway and displacement then comes extension.
+- In a reverse turn, it is the same but the displacement is not here.
+- It is not rotation then sway etc, but they need to blend to each other.

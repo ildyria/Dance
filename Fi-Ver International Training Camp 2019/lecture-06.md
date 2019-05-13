@@ -15,7 +15,7 @@
 Same thing that in English Waltz, use the body weight, make bigger steps.
 In the Slowfox you don't go on toes, you stay on the ball of the foot.
 
-**Give the lady space, the more space you give her, the happier she will be**
+**Give the lady space, the more space you give her, the happier she will be**  
 *Let her go and she will come back*
 
 ## Throwaway oversway
