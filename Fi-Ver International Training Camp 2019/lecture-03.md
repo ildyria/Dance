@@ -30,4 +30,4 @@ While in frame, just move randomly and keep connection. The body should not slid
 
 ## Routine
 
-Feather step - reverse turn (heel turn for lady) - Feather finish - 3 steps - curved feather - back feather - back 3 steps.
+Feather step &rArr; reverse turn (heel turn for lady) &rArr; Feather finish &rArr; 3 steps &rArr; curved feather &rArr; back feather &rArr; back 3 steps.
