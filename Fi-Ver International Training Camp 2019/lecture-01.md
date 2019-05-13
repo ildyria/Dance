@@ -20,23 +20,24 @@ The head must be active in dancing, inviting the movement.
 
 The person at the outside of the circle is the person with the active head. Both head cannot be active at the same time (with exceptions, e.g. throwaway oversway)
 
-e.g.:
-Fallaway, the active head is the lady on 1 2 3 4 => slip pivot.
+**Fallaway:**  
+Fallaway, the active head is the lady on 1 2 3 4 => slip pivot.  
 Bounce Fallaway the active head is of the lady on 1 2 3 4 but on 4 the head of the man is also active, defining the direction of the dance.
 
-Tumble turn:
-1 2: Man head is active.
-3&: Lady's head is active.
-4: Man head is active.
+**Tumble turn:**  
+1. Man head is active.
+2. Man head is active.
+3. & Lady's head is active.  
+4. Man head is active.
 
-Throwaway oversway:
+**Throwaway oversway:**
 Man head is active first and the both are active.
 
-Promenade:
+**Promenade:**
 Don't forget the lowering, the lady's head is active first and then the Man head is active to bring back the lady.
 
 Using the head helps to create a bigger shape.
 
 ## Small Routine:
 
-Bounce fallaway -> Tumble turn -> throwaway oversway -> ronde -> promenade.
+Bounce fallaway	&rArr; Tumble turn 	&rArr; throwaway oversway &rArr; ronde &rArr; promenade.
