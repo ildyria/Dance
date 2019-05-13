@@ -32,6 +32,6 @@ Use the the active walking to mark your quicks, especially in scatter chasse.
 ## Small Routine.
 
 ```
-Step-hop -- double chasse  -- run run.
-  1 2            3&4  5 6       7   8
+Step-hop ⇒ double chasse  ⇒ run run.
+  1 2         3&4  5 6       7   8
 ```

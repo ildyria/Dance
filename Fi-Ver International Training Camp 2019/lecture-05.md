@@ -10,7 +10,7 @@ In Quickstep, the feet are always on the floor *aside from "stepping forward"*.
 
 ## Combination
 
-basic step - forward lock - 123 of natural turn - back lock - tipple chasse to the right - forward lock & back to basic
+basic step 	&rArr; forward lock 	&rArr; 123 of natural turn 	&rArr; back lock 	&rArr; tipple chasse to the right 	&rArr; forward lock & back to basic
 
 ## syncopated steps
 
