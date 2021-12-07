@@ -1,7 +1,7 @@
 # English Waltz
 
 ### Pivots
-- B - in each pivot to the right, continue pivotig on the ball of the left foot (kiss the floor).
+- B - in each pivot to the right, continue pivoting on the ball of the left foot (kiss the floor).
 
 ### Back check
 - rotation is in own space (B left up)
@@ -12,7 +12,7 @@
 - Technical sway to the left
 
 ### Pivots
-- mind the foot direction and continue pivoting on tbe ball of the foot.
+- mind the foot direction and continue pivoting on the ball of the foot.
 - Wait for the lady; absorb.
 
 ### Rotations
@@ -28,14 +28,14 @@ Make sure to know:
 ### Soft ankles, soft knees... Focus on controlled lowering.
 
 ### Our moment
-- lower together and then extend together.
+- Lower together and then extend together.
 - Under the table, over the table.
 
-### Tipple chasse
+### Tipple chassé
 - give space and rotate to the right,
 - low in the hips,
 - technical sway to the left on 1,
 - neutral on 2.
-- Outside position on 1!!! Emil chasse exercise (outside change).
+- Outside position on 1!!! Emil chassé exercise (outside change).
 
 - L: Extend upward from contact at the hip.

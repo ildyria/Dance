@@ -7,7 +7,7 @@ While lowering, go into the foot, and down forward, extend the right foot & cont
 Try to go as big as possible, especially during practice.
 - Use the foot entirely, from 5 (heel) to 1 (toe)
 - remember, rotation comes from the knees, then the hips, then the top.
-- when pushing with left foot,  use the rolling action.
+- When pushing with left foot, use the rolling action.
 - When left leg goes forward, deep in the hips, "swing the hips to the left" for the reach. However don't leave the body behind while extending the leg".
 
 ### 456 - Spin turn

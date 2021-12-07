@@ -1,7 +1,7 @@
 # Tango
 
 Power and quickness in the tango comes from the hips / lower core.
-Emil  would get punched in the bladder when he did it wrong.
+Emil would get punched in the bladder when he did it wrong.
 
 Lead with the core, not with the top. Keep the space for the space for the lady intact.
 

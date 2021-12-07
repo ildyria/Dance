@@ -11,7 +11,7 @@
 - Elbow in dance direction is moving up and the other down.
 
 ### Banana action (upswing).
-- Upswing from the core create two banana.
+- Upswing from the core create two bananas.
 
 ### Infinity
 - there is no sway,

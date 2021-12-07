@@ -8,7 +8,7 @@
 - Stay low (Link)
 - Kiss the floor link
 - 5 seconds stillness exercise
-- Keep on practising until you do it 10 times right, not 1.
+- Keep on practicing until you do it 10 times right, not 1.
 - Every step has a different mechanic: point step closes and opens again. For every step you can see which close/open you have.
 - Do not close too much.
 
@@ -18,6 +18,6 @@ when you're late and try to rush afterward to catch up, losing control of the bo
 
 ### Fallaway slip pivot
 
-- open on the 2, 3; close on  and, slip pivot action on 4. 
+- open on the 2, 3; close on and, slip pivot action on 4. 
 
 **If your teacher repeatedly tells you the same thing, you might want to change it.**
